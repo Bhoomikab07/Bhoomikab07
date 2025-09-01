@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm intern at X-Works
+I'm intern at X-Works.
 
 
 ## 🌐 Socials:
